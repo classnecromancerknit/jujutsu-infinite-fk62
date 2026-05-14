@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu infinite like never before with smart Script for jujutsu infinite, the #1 Script. Includes unlimited stamina and god mode for
 
 
 
